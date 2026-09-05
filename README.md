@@ -79,8 +79,8 @@ A modern and responsive landing page for a luxury watch brand, focused on clean 
 
  📫 Connect With Me
 
-* 💼 LinkedIn: Coming soon
-* 📧 Email: Coming soon
+* 💼 LinkedIn: www.linkedin.com/in/youssef-ibrahim-28a7a130a
+* 📧 Email: yousef.ibrahim333@gmail.com
 
 ---
 
